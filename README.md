@@ -1,2 +1,2 @@
-# infp-t
+# infp-t | aries | idyllic 
 lovely
